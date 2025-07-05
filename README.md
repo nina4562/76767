@@ -23,4 +23,4 @@
 本网站仅提供第三方影片索引，所有内容均来自于公开平台，仅限成年用户（18岁以上）访问。请合理安排时间，文明观看，若喜欢某部作品请支持正版！
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nina4562/76767 ）</span>
